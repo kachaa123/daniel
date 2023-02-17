@@ -1,1 +1,2 @@
 # daniel
+konie śmierdzą
